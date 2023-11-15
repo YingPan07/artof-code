@@ -1,2 +1,2 @@
 # artof-code
-![Screenshot 2023-09-13 093154](https://github.com/YingPan07/artof-code/assets/150818116/1c52f53f-71c3-4007-8008-80b9580ce66f)
+![Screenshot 2023-11-14 091930](https://github.com/YingPan07/artof-code/assets/150818116/d70c9bf3-c769-40db-98c4-b726a477a937)
